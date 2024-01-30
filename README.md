@@ -1,1 +1,1 @@
-### Owned by PettyHacks on SynAck!
+### Owned by PettyHacks!
